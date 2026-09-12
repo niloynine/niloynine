@@ -1,5 +1,5 @@
 # 💫 About Me:
-3rd-year CSE @ NSTU | Coding | AI | ML | DBMS | Web Dev | Always learning 🚀
+4th-year CSE @ NSTU | Coding | AI | ML | DBMS | Web Dev | Always learning 🚀
 
 
 ## 🌐 Socials:
